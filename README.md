@@ -1,0 +1,1 @@
+# Global-AI-Hub-Akbank-Python-ile-Yapay-Zekaya-Giris-Bootcamp-Proje-Dosyasi
